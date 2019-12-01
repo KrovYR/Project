@@ -1,1 +1,1 @@
-Пройден туториал на https://kychka-pc.ru/
+Пройден туториал на https://kychka-pc.ru/ 
